@@ -6,7 +6,7 @@
 
  
 
-### About my Academics:
+### About my Academics:-
 
 | Class     | Session   | Percentage(%) |
 |-----------|-----------|---------------|
