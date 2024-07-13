@@ -25,4 +25,6 @@ About the learning at GNE;-
     - 2nd class - It was Mathematics class. Firstly, ma'am took the introduction of the whole class and then taught us **Differentiation**.
     - After that there was my coding class.
 
+[My Telegram](t.meTajinder_2449)
+
  **Thank You!** 
