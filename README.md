@@ -14,7 +14,7 @@
 | 12th      | 2023-24   | 93.8          |
 
 
-About the learning at GNE;-
+> **About the learning at GNE;-**
  * 10th Jujy was my first day at the GNE College.
   * Our inaugral Day started with Kirtan and Ardass in college's Gurdwara Sahib. After the ardass, there was a tea break organised by the college for almost half an hour.After that inaugral Day started in the college auditorium. Speeches were delivered by our **college principal, H.O.D. ma'am and by the guests of honour**.
  * On the second day of induction,
