@@ -25,7 +25,7 @@
     - After that there was my coding class.
 
 ## My Contact Details:-
-##### [My Telegram link](t.meTajinder_2449)
+##### [My Telegram link](t.me/Tajinder_2449)
 ##### [My LinkedIn link](https://www.linkedin.com/in/tajinder-kaur-272823318)
 
 ##### **Thank You!** 
