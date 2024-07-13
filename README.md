@@ -8,6 +8,7 @@
 
 ### About my Academics:
 
+
 | Class     | Session   | Percentage(%) |
 |-----------|-----------|---------------|
 | 10th      | 2021-22   | 94.4          |
