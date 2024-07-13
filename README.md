@@ -24,7 +24,8 @@
     - 2nd class - It was Mathematics class. Firstly, ma'am took the introduction of the whole class and then taught us **Differentiation**.
     - After that there was my coding class.
 
-## Here is my Telegram link:-
+## My Contact Details:-
 ##### [My Telegram link](t.meTajinder_2449)
+##### [My LinkedIn link](https://www.linkedin.com/in/tajinder-kaur-272823318)
 
- **Thank You!** 
+##### **Thank You!** 
