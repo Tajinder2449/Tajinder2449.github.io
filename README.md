@@ -28,6 +28,6 @@
 ##### [My Telegram link](https://t.me/Tajinder_2449)
 ##### [My LinkedIn link](https://www.linkedin.com/in/tajinder-kaur-272823318)
 
-[View my blog](https://github.com/Tajinder2449/Tajinder2449.github.io/commit/3a3af4c3a20466f16d278c8e8c892180a75b151b)
+[View my blog](ANY.md)
 
 ##### **Thank You!** 
