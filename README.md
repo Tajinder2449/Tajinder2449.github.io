@@ -17,6 +17,6 @@
 ##### [My Telegram link](https://t.me/Tajinder_2449)
 ##### [My LinkedIn link](https://www.linkedin.com/in/tajinder-kaur-272823318)
 
-###To know about my journey at GNDEC - [View my blog](ANY.md)
+### To know about my journey at GNDEC - [View my blog](ANY.md)
 
 ##### **Thank You!** 
