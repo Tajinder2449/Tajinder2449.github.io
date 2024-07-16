@@ -1,1 +1,1 @@
-![GNDEC](JFJMJ)
+![GNDEC](gndec.png)
