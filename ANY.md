@@ -22,4 +22,4 @@
 > * Lastly, there was a doubt code session conducted by **CodeGNE** group leaders to take our doubts.
 
 
-  #### **With that it was the end of my day at GNDEC**.  
+  **With that it was the end of my day at GNDEC**.  
