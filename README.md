@@ -17,6 +17,11 @@
 ##### [My Telegram link](https://t.me/Tajinder_2449)
 ##### [My LinkedIn link](https://www.linkedin.com/in/tajinder-kaur-272823318)
 
+### Activities:-
+**Complete Online Excel course:-**
+
+![Certificate of Completion of Online Excel Course](Certificate of Excel course.jpeg)
+
 ### To know about my journey at GNDEC - [View my blog](ANY.md)
 
 ##### **Thank You!** 
