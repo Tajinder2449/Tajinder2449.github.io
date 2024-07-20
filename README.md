@@ -21,8 +21,7 @@
 
 **Complete Online Excel course:-**
 
-
-![Certificate](Certificate of Excel course.jpeg).
+![Certificate](Certificate of Excel course.jpeg)
 
 
 ### To know about my journey at GNDEC - [View my blog](ANY.md)
