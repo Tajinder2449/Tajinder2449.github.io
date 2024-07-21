@@ -26,4 +26,4 @@
 
 ### To know about my journey at GNDEC - [View my blog](ANY.md)
 
-##### **Thank You!** 
+## **Thank You!** 
