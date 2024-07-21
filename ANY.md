@@ -22,8 +22,8 @@
 > * Lastly, there was a doubt code session conducted by **CodeGNE** group leaders to take our doubts.
 
 ### Day 5 - 16th July
-> This day, we had a session with our seniors. There we had some **English activities i.e. Debate, Group Disscusion etc**.
-> There was my coding class too. In which we all cleared our doubts.
+> * This day, we had a session with our seniors. There we had some **English activities i.e. Debate, Group Disscusion etc**.
+> * There was my coding class too. In which we all cleared our doubts.
     
 ### Day 6 - 17th July 
 > * We had a mathematics class first. In which, ma'am gave us assignment of sums related to **integration and diffrentiation**.
