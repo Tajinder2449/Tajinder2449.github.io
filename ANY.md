@@ -18,7 +18,7 @@
 > * Firstly, **Dr. Randhir Sir** took our session about making account and creating repository on Github.
 > * Then, **Dr. Pyare Lal Garg sir**, delivered the speech to the students. He motivated us and inspired us to be consistance in every situation.
 > * Our session about setting and achieving future goals by **Dr. Sony goyal**. Also, he toldus how to utilise 4 years of our Degree.
-> * Then, one of our senior **Mr. Pancham Rai Singh Gill** told us about non-verbal communication.He also showed us the work done by the automobile club of our college.
+> * Then, one of our senior **Mr. Pancham Jai Singh Gill** told us about non-verbal communication.He also showed us the work done by the automobile club of our college.
 > * Lastly, there was a doubt code session conducted by **CodeGNE** group leaders to take our doubts.
 
 ### Day 5 - 16th July
@@ -41,3 +41,30 @@
 > * **Dr. Jaswinder sir(Shiksha Ratan)** who is quite well known for popularizing science and Mathematics through various ingenious and novel ways. He taught us many innovative technique of memorizing mathematics tables and also he experimented many Science techniques.
 > * After the break, we had **Department Visit**. There CSE teachers interacted with us. Also, we went to the server room, labs etc.
 > * In our coding, there was workshop conducted by my coding classmates which was about **How to make docx, html, pdf, ebook from a MarkDown file using PanDoc**.
+
+### Day 9 - 22 July
+> * First off all, **Dr. S.B. Singh(Retired Principal of our college)** made us perform a activity to ananlysis our aimbition, strength, weakenesses,our goals etc. Then, he motivated us to be consistant in to life to achieve anything in life.
+> * After that, **Dr. Pushpinder Sir** expailned about type of learners. He told us we should be aware of our learning, as if we know only then we can make our learning efficient. Also, he took an example of a bamboo tree to expain us that how we need flexibility to go through any tough time, as the bamboo tree which bends when the wind flows whereas the trees which stand straight often falls.
+> * At the last, a session by **Sunita ma'am** to save environment was conducted. She showed us by a video that how human have used all the the resources on the earth and have exploited the earth. She expained us that how we individually can help nature to have a sustainable life on earth.
+
+### Day 10 - 23 July
+> * Our first lecture was of **UHV**. In this lecture, our Prof. expained us about the Harmony in the familt as well as in the society.
+> * After that, it was class by physics Prof. he expained how we should learn. He expained some of the physics formulae. From this class, I learned that for understanding every fact we should understand the history and the scientific understanding of every fact.
+
+### Day 11 - 24 July
+> * **Mr. Guaravdeep Singh(Founder & Chairman, Initiators of Change)** told us about his failures and achieving success in life. He also shared his views about Analysing own Qualities. He also shared his vision about helping needy people.
+> * **Er. Lakhveer Singh(Co-ordinator of CML)** guided us about various NPTEL courses about enhancement of various skills.
+> * Talented students showcased their singing performances.
+> * Lastly, **Causmic Club** of college interacted with us. The core team of club told us about the various benefits of joinig Causmic Club. They also told various events organised by Causmic Club i.e. ACME, APEX etc.
+
+### Day 12 - 25 July
+> * First of all, it was chemistry lecture by **Prof. Karan Bhalla** Foremost, he took our introduction and explain the importance of joining clubs to enhance own skills. Then, he taught us the **fundamentals of Chemistry**.
+> * Then, in **UHV** class there was Group Discussion on how Harmony in oneself, Family, Society leads to mutual happiness and mutual prosperity.
+
+### Day - 26 July 
+##### It was the last day of student induction program
+> * In auditorium **Dr. Kanwalpreet Kaur Bhatt(Meditation Councellor and Homeopathic Practitioner from last 15 years)** explained us the value of meditation and shared the words of wisdom.
+> * Many performances by the students of first were given in accordance with expertise in singing, dancing etc.
+> * The induction program ends with the lovely mimicry performance by a 3rd year student of **BBA**.
+
+##### My experience of Student induction Program was very great. It was motivational, enjoying and most importantly memorable period of my journey at GNDEC. I learned many things in this period by many expertise.
