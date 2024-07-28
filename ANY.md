@@ -67,4 +67,4 @@
 > * Many performances by the students of first were given in accordance with expertise in singing, dancing etc.
 > * The induction program ends with the lovely mimicry performance by a 3rd year student of **BBA**.
 
-##### My experience of Student induction Program was very great. It was motivational, enjoying and most importantly memorable period of my journey at GNDEC. I learned many things in this period by many expertise.
+##### My experience of Student induction Program was very great. It was motivational, enjoying and most importantly memorable period of my journey at GNDEC. I learned valuable things in this period by many expertise which will remain with me for all my rest of life.
